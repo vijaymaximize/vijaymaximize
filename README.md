@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @vijaymaximize
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+A PDF Guide to Aluminium Fluoride
 
-<!---
-vijaymaximize/vijaymaximize is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Get PDF Sample Copy : https://lnkd.in/ea9sUqU
+
+#Aluminium_fluoride refers to an inorganic compound that is used in several industries in the manufacturing processes. It is mainly used in the production of #aluminium. It can be prepared synthetically and is a colorless solid that occurs as minerals oskarssonite & rosenbergite
+
+#Aluminium_fluoride #oxide #aluminiumindustry #AluminiumFluoride #aluminium #aluminiumfabrication #mining #manufacturing 
+#copper 
